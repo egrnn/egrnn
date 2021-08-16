@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Nataly
+- 👀 I am interested in Korean, QA & photography

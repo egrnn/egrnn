@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Nataly
-- 👀 interests: Korean, QA & photography
+- 👀 interests: Korean, QA, HR & photography
